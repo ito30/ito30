@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **ito.muhammad30@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/itofchrz/](https://www.linkedin.com/in/itofchrz/)
+- 📄 Know about my experiences [https://www.itofchrz.xyz](https://www.itofchrz.xyz)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
